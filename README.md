@@ -1,2 +1,0 @@
-# SIGED-certificado-secundaria-autenticacion-HUOB941103MDFRLR09
-HUOB941103MDFRLR09
